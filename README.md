@@ -1,0 +1,1 @@
+A collection of resources that have impacted me, organized by technical and the asomatous.
